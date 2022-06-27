@@ -2,7 +2,6 @@
 ## 👀 I’m interested in ...
   - Doing outdoorsy things with my wife and pups
   - Going to sporting events - my wife and I are huge Philly Sports fans #GoBirds
-  - Playing guitar
   - Marvel movies
 ## 🌱 I’m currently learning ...
   - At Disco:

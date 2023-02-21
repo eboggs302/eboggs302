@@ -7,7 +7,7 @@
 ## I’m currently learning ...
   - At Disco:
     - All things Disco...
-    - Learning anything/everything from those around me: being a sponge 🧽
+    - Learning what I can from those around me: being a sponge 🧽
   - At home:
     - American Sign Language (trying to be more consistent with it)
     - Learning TSDX
